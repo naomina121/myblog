@@ -6,6 +6,6 @@
 
 [mint-note.net](https://mint-note.net)
 
-[X](https://x.com/rio07012024)
+[X（個人的つぶやき用）](https://x.com/rio07012024)
 
 ※フォローしません
